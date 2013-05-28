@@ -1,0 +1,1 @@
+<html><body><p>La fotografía es aérea: recostados los dos de lado en la pequeña cama, enfrentados, a mano el uno del otro, entre risas, casi en penumbras, salvo por un par de velas y un hornito quemando lavanda. Listos para amar.</p></body></html>

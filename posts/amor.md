@@ -1,0 +1,1 @@
+Pa' que veas que te quiero y no es grupo, dejo la garufa, me rechiflo del escabio y me guardo el vento del faso para el bondi de vuelta. Me hago fajar por tu viejo, lo chamuyo hasta que me consienta el casorio, te hago tres pibes y me hago laburante. Me hago unos mangos, te compro ese tapadito de armiño y te cuido para el resto del viaje.

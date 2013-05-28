@@ -1,0 +1,5 @@
+No era que Ferreira tuviera miedo a perder, era que tenía terror a ganar y después no poder defender el título. Estaba tan cómodo y autojustificado en la derrota, era tan amigo de ella que a pesar de, cada tanto, llorar penas, manejaba -mal que mal- la situación. De cuando en cuando se anotaba algún triunfo, pero siempre tan pensado, tramado, premeditado, imperfecto... ¡tan tardío! que el sinsabor era superior al goce y terminaba pasando por derrota encubierta, demasiado excusada a su gusto. Ferreira era un obsesivo que se pasaba planeando el plan perfecto para todo y se olvidaba de que el tiempo también es una variable. Una fundamental.
+
+Entonces ¿cómo narrar el episodio sin caer en el mismo vicio de Ferreira? Empezando por el final es una opción que se me antoja válida. Pensándolo más detenidamente tal vez "el final" sea principio, nudo y desenlace al mismo tiempo.
+
+Ferreira se termina yendo solo a casa, convencido de haber cambiado la vida del reducido grupo de personas que lo observaba trabajar muy entusiasmado en su obra. Quizás la diferencia de esta con otras veces haya sido la sensación de entrega absoluta nunca antes lograda.

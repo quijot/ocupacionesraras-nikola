@@ -1,0 +1,1 @@
+Si ella al final se muere y él se queda solo, aunque él ya se hubiera quedado solo mucho antes, ¿para qué seguir con la historia? ¿pueden pasar cosas interesantes después? Según uno que leí, sí. Dice que el resto es literatura, como si eso justamente fuera lo interesante.

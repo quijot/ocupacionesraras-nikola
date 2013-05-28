@@ -1,0 +1,5 @@
+Van cinco o seis días. Ya no quiero salir. No es porque me miren o me señalen, todo lo contrario: nadie parece notarme. Eso lo hace peor. Detesto que todos disimulen como cuando entra un rengo a un restorán: todos se esfuerzan para no ver. Es una falsa indiferencia, que sigue siendo indiferencia.
+
+Hace casi una semana que me he convertido en esta boca. Perdí toda sensibilidad en el resto del cuerpo. Como si todas las terminales nerviosas se hubieran mudado a mis labios. Camino, respiro, parpadeo, mastico por inercia, como una reacción involuntaria. No estoy seguro de soportarlo demasiado tiempo más. Todo es silencio y vacío, sólo una brisa en mis labios. Algo falla con mi audición y con los demás sentidos, excepto, como he dicho, el gusto, al extremo agudizado. Sólo controlo mis labios y mi boca: mi lengua. Me siento una gran boca con un pequeño apéndice llamado cuerpo, que me resulta totalmente despreciable, que es mi cruz.
+
+Tengo la esperanza de que su beso redistribuya mi alma... y me salve.

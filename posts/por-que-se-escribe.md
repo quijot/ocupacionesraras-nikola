@@ -1,0 +1,1 @@
+Porque García Márquez todos los años, al llegar la primavera, se llenaba de golondrinos. En *Cien Años de Soledad*, se los atribuyó a uno de sus personajes, Aureliano Buendía, y a él no volvieron a salirle.

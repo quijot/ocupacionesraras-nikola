@@ -1,0 +1,7 @@
+<strong>La</strong> fiesta se desarrollaba normalmente, todavía sin noticias de algún borracho temprano o alguna discusión subida de tono, usuales en estos acontecimientos. ¡<strong>Manifestación</strong>! gritó uno que parecía, supongo por su costoso smoking, allegado al dueño, rompiendo con la armonía que reinaba en el, hasta ese momento, agradable predio. <strong>Tuvo</strong> lugar un instante de silencio, esa fracción de tiempo sensible sólo suando se sabe que lo siguiente será algo grande.
+
+<strong>Lugar</strong> y tiempo tan perfectos deben haber sido una casualidad de recurrencia cada millones de años. <strong>Frente</strong> al asesino (hasta el momento impune), el hombre cuyo sufrimiento había sido sellado a fuego a punto de consumar justicia por su propia mano. <strong>Al</strong> siguiente silencio que recuerdo le sucedió, con increíble nitidez, el disparo; tan oscuro para muchos ahora.
+
+“<strong>Hospital</strong> Fernández”, anunció el paramédico ante el desencajado rostro de uno de los hijos del anfitrión de la ya olvidada fiesta. <strong>Militar</strong> condecorado otrora, intercambiaba roles con una de sus tantas víctimas, tantos años después. <strong>En</strong> otro tiempo no hubiese imaginado una situación parecida, se hubiese creído todopoderoso, capaz del más terrible de los crímenes y de ninguna condena.
+
+<strong>Rosario</strong> Estevez, ahora sí, descansa en paz.

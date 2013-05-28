@@ -1,0 +1,3 @@
+La primera vez que me morí fue para que alguien viniera a resucitarme. Esperaba ansiosamente el momento en que vienieras a resucitarme.
+
+Ahora estoy muerto en paz, disfrutando de este olor a álbum de figuritas medio lleno. Hasta despertar cuando yo quiera despertar...

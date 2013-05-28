@@ -1,0 +1,1 @@
+Se apaga, se deja llevar lentamente por un camino cuesta abajo, entre quejas y reclamos que cada vez se escuchan menos, no se oyen, por hartazgo o indiferencia, se pierden entre los gritos sordos de la multitud muerta, hasta hacerse igual de insignificantes que la multitud muerta. Se muere.

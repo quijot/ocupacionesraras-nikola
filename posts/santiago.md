@@ -1,0 +1,11 @@
+Un paraje conformado enteramente por suburbios, es imposible distinguir el centro del norte, el oeste del sur. Sus calles todas zigzagueantes, tienen nombres como *pituitaria*, *botamanga*, *picaporte* o *barrilete* y cambian cada doscientos metros sin criterio aparente, de manera que es posible una intersección entre, por ejemplo, *machimbre*, *esqueleto*, *pituitaria* y *anegadizo*. Cada tanto aparecen pequeñas plazas con hamacas, toboganes con arenero o potreritos con arcos precarios bautizados según antojo de los pibes. Es muy curiosa la manera de denominar a los espacios públicos: sólo los niños tienen ese atributo, dado que, es sabido, los mayores han perdido cierta frescura e inocencia y tienden a contaminarlo todo con cuestiones demasiado sesudas. Sin embargo, son aún lo suficientemente lúcidos como para reconocerlo.
+
+No hay zonas paquetas en esta ciudad, no hay *centro comercial*, más aún, nunca escuché pronunciar tal palabra. El almacenero de la esquina es al barrio lo que el hipermercado a la metrópolis, y hay tantos como sobrenombres se le puede dar a su dueño.
+
+Están dispuestas, además, llamativamente ordenadas, bicicleterías por todos los rincones del pueblo. Casi no hay autos. Las distancias son cortas. Predomina el verde en dulce armonía con el rojo, el celeste y el amarillo anaranjado.
+
+Pero la institución más reconocida es ciertamente la Biblioteca Popular, desparramada por el pueblo de la manera más atípica: en los anaqueles de cada hogar, obligatorios por ordenanza (que, por otra parte, es la única ley obligatoria).
+
+Hay también algunos cines pequeños, montones de boliches de mala muerte y clubes sociales donde practicar desde el deporte más complejo hasta la *casita robada*. El espíritu amateur es, en todos, el protagonista.
+
+Es frecuente cruzar por las intrincadas callecitas pequeños huertos con todo tipo de hortalizas. El curso del arroyo Santiago, afluente de un río más importante, hace a los aportes propios de la pesca. Con esto, es tal la cantidad de pescado que consumen los pobladores (conocida es la propiedad del fósforo) que su memoria es prodigiosa; tanto que se conoce la historia del pueblo con lujo en sus detalles. Pero ese es otro capítulo...

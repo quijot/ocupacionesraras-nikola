@@ -1,0 +1,10 @@
+*.py[co]
+__pycache__
+
+# nikola
+cache
+output
+.doit*
+
+# vim
+*~

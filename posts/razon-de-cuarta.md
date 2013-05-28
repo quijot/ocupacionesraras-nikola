@@ -1,0 +1,1 @@
+Como dice Roland Barthes en su razón número cuatro para escribir: yo escribo también (tan patéticamente cierto como necesario) "para ser reconocido, gratificado, **amado**, discutido, confirmado". Y para eso alguien me tiene que leer.

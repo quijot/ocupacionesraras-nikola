@@ -1,0 +1,1 @@
+Debía escribir algo con ése título. Escribiría: *¡Qué horrible es estar bien! No se puede escribir nada sensato*. Lo frenó su obsesión de revisarlo todo, la definición de sensato en el diccionario: *"prudente, cuerdo, de buen juicio"*.

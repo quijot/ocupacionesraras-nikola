@@ -1,0 +1,11 @@
+El, hasta ahora, personaje más triste y suicida de este blog (cualidad que se tiene ganada entre otras cosas por ser el único personaje de este bolg) se llama **Ferreira**. No conocemos aún su nombre de pila y creo que nunca lo sabremos. No nos interesa demasiado. Después de todo no tiene mucho de interesante indagar más sobre alguien tan desdichado. Puede resultar contagioso. Por lo dicho entonces, no dedicaremos más que unos pocos renglones a describirlo físicamente, con el simple fin de poder imaginar su rostro si es que se digna a aparecer en algún nuevo capítulo (¡por todos los dioses roguemos que no!).
+
+Ferreira es un tipo común. Muy común. Es tan común que llama la atención. Media altura, flaco, barbudo como de un mes, pero eternamente, como si la barba le hubiera crecido durante un mes y después nunca más. Una barba común. Enrulada. Del mismo tono que su cabello: castaño. Castaño común. Peinado con una prolija raya al costado izquierdo, típicamente de diestro, y cortado con una regularidad con la cual se podrían ajustar los relojes cada quince días.
+
+Sus ojos lejanos, ancianos, cansados, han pasado por largas penas. Sus ojos son dos cicatrices que no cerrarán nunca y que tenerlas abiertas significará siempre un minucioso castigo, pensado y tramado al mínimo detalle por Lucifer en persona. Muy comunes. No coinciden en antigüedad con el derredor de ellos, libre de marcas, liso como en un niño pre-puber. Quizá su único rasgo poco corriente.
+
+Orejas pequeñas, ocultas aún por el escaso cabello y no muy tupidas patillas. Nariz apenas curvada, unida al resto de la cara de manera que la punta de la misma queda más arriba y más adelante y la unión con el labio superior, más abajo y más atrás. Es decir, por una línea oblicua, lo cual es altamente común.
+
+Su anatomía no vale la pena describir. Es un pobre tipo flacuchón, que si mostrara su torso probablemente la mayoría de nosotros buscaría en el fondo de su bolsillo las monedas sobrantes del día, invitado por el remarcado relieve de sus costillas, más símbolo de la soledad de su alma que de la estrechez de su dieta.
+
+Como hemos sugerido, Ferreira es un tipo poco recomendable. Sólo lo citamos con fines literarios, para simpatizar de manera condescendiente o, llanamente, para burlarnos de su mala suerte.

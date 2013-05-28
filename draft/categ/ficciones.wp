@@ -1,0 +1,10 @@
+<html><body><p>[php]
+/* Redirigir navegador */
+
+header("Location: http://ocupacionesraras.com.ar/category/ficciones");
+
+/* Asegúrese de que el código que aparece a continuación no se ejecutará cuando redireccionamos.*/
+
+exit;
+
+[/php] </p></body></html>
