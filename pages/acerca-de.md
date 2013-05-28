@@ -14,7 +14,7 @@
 Una vez un tal [**Carlos I**](http://oscuropuerto.blogspot.com.ar/) me comentó el texto del *Tato* Pavlovski, [*Celebrarse*](blog/celebrarse.html):
 
 > FELICITACIONES POR ESTE LUGAR.
-> Busqué quién eras, hombre, mujer, de aquí o allá. Quería decirte, mostrarte, no se, lo que se es que no podía irme sin avisar. Pasé por aquí, ya no se cómo y me sorprendió la emoción. La creatiVIDAd del espacio y la forma que hilvanaste sensaciones de tu obra y la de otros.i
+> Busqué quién eras, hombre, mujer, de aquí o allá. Quería decirte, mostrarte, no se, lo que se es que no podía irme sin avisar. Pasé por aquí, ya no se cómo y me sorprendió la emoción. La creatiVIDAd del espacio y la forma que hilvanaste sensaciones de tu obra y la de otros.
 > Después de andar atolondrado por etiquetas y post, dejo aquí el mensaje, qué mejor lugar que detrás del texto del Tato, para Celebrar por tu Rara Ocupación. Gracias y hasta algún otro instante.
 > --Carlos I
 
